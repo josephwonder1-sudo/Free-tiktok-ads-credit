@@ -1,4 +1,4 @@
-# TikTok Ads Credit 2026: Claim$6000 in one single click
+# TikTok Ads Credit 2026: Claim $6000 in one single click
 
 *This page contains affiliate links. If you sign up through them, we may earn a commission at no extra cost to you. This page is independent and not operated by TikTok.*
 
